@@ -1,0 +1,1 @@
+# Seminario-de-Lig-stica-Computacional-2027-1
